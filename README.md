@@ -1,7 +1,7 @@
 # awesome-twitter-artist
 
 Name | Link
--|-
+-|-|-
 001 | [@lu_curie](https://twitter.com/lu_curie) | Animator/Illustrator. Contact: curielu@alum.calarts.edu
 002 | [@myles_yeo](https://twitter.com/myles_yeo) | Gameplay Animator and Cinematic Animator @ Passion Republic. Games: Gears of War 4, GOW: Ultimate Edition, Shadow of the Beasts & more.
 003 | [@clementmor1](https://twitter.com/clementmor1) | Clément - Trying to recreate a half remembered dream  http://superrare.com/clementmorin  http://opensea.io/collection/exospheres…
