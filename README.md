@@ -93,7 +93,6 @@ id | Name | Link
 089 | [@BradeskoUrban](https://twitter.com/BradeskoUrban) | Director 3D/VFX Artist Photographer Entrepreneur Craftverse - http://craftverse.co AXIOM - http://theoryaccelerated.com a:musé - http://amusecandles.com OO
 090 | [@HozureArt](https://twitter.com/HozureArt) | Self-taught artist and yordle fanatic. I like to draw cute things doing cute things! Commissions closed.
 091 | [@tiantianxu](https://twitter.com/tiantianxu) | Product designer by day. Artist by night. 100 Day Project at http://Instagram.com/tiantianxu
-092 | [@GeoffreyTice](https://twitter.com/GeoffreyTice) | Artist • Standup • Co-Founder ,@smashandgrabtv, • Co-Host of Grid Penalty Podcast 
 093 | [@RavenKwok](https://twitter.com/RavenKwok) | 郭 銳文 Visual Artist / Creative Technologist
 094 | [@escentia](https://twitter.com/escentia) | Artist and hospital gremlin Memorabilia is my webcomic!  http://patreon.com/escente   http://buymeacoffee.com/escente  (pfp by ,@Velnna,)
 095 | [@ArtofLavie](https://twitter.com/ArtofLavie) | Lavie Arion Arcana Game Artist she/they ‍ http://artstation.com/laviearc
