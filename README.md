@@ -1,4 +1,4 @@
-# awesome-twitter-artist _
+# awesome-twitter-artist
 
 id | Name | Link
 -|-|-
